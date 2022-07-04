@@ -4,14 +4,15 @@ Sc Ori By Arasya
 Sc Record By Christian ID
 Note : Jangan Perjualkan Sc Ini!!!
 
-Instagram Jojo : @arsrfi.jpg
+Instagram Jojo : @frrshyy
 Youtube : Jojo Channel
 
-Instagram : @chris.tianid
+Instagram : @frrshyy
 Youtube : Christian ID
-WhatsApp : 0859-2116-5857
+WhatsApp : 0877-7933-5012
 
 THANKS TO
+- Zero 
 - Irfan Hardianto
 - Amell
 - Hardianto
